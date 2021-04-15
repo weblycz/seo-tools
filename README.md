@@ -16,3 +16,7 @@ https://smallbusiness.withgoogle.com/tools/#!/<br>
 
 PPC<br>
 https://ads.google.com/ Google ads<br>
+
+
+Courses - Certifications
+https://learndigital.withgoogle.com/digitalgarage/course/digital-marketing Google Garage - The Fundametals of Digital Marketing + Free Certification from Google
